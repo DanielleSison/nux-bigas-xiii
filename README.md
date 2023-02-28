@@ -1,6 +1,6 @@
 # Nux Bigas XIII
 
-## Video Submission Link: https://watch.screencastify.com/v/lEbrUTpqQcAlLUgX5wZR
+## Video Submission Link: https://drive.google.com/file/d/1YrsEKfmsnAd58WCGD87gwuMUUF4vBQ_O/view
 
 ## Description
 
